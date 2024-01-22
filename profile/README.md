@@ -1,4 +1,4 @@
-## Hi there 👋 Its Mara Gemes
+## Hi there 👋 Its Mara Games
 
 <!--
 
